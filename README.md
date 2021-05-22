@@ -1,0 +1,1 @@
+# Earnshaw-s-theorem
